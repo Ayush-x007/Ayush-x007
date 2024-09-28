@@ -5,7 +5,7 @@
 - 📫 How to reach me
 - DM me Here - https://www.instagram.com/_aayush_x007?igsh=cjNmYWRyeWt1NnN1
 - 😄 Pronouns: 😎🤑🙃
-- ⚡ Fun fact: I love dating girls
+- ⚡ Fun fact: I love games.
 
 <!---
 Ayush-x007/Ayush-x007 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
